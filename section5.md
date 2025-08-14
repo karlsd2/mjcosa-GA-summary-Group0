@@ -1,5 +1,5 @@
 Closing Remarks and Next Steps:
 
--Eating Snacks
+-Eating snacks
 -Group photo
--Filling out the evaluation form 
+-Filling out of evaluating form
